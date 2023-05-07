@@ -9,7 +9,7 @@ This is a library of the official publication of the "Marxist-Leninist-Maoist an
 
 👉[Martix群组](https://matrix.to/#/#jinggangshan:matrix.org)
 
-👉[《燎原月刊》官方推特](https://twitter/liaoyuan2022)
+👉[《燎原月刊》官方推特](https://twitter.com/liaoyuan2022)
 
 👉[官方YouTube频道](https://www.youtube.com/@user-mg5pp9or9g)
 
